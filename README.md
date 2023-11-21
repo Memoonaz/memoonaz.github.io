@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-My name is **Memoona Zareen**cI’m currently studying PhD at the University of Auckland Business School, focusing on the topic of "Blockchain Governance in Multi-Organisational Ecosystems: Coping with Coopetition."
+My name is **Memoona Zareen** I’m currently studying PhD at the University of Auckland Business School, focusing on the topic of "Blockchain Governance in Multi-Organisational Ecosystems: Coping with Coopetition."
 
 🌱 I’m currently learning and expanding my knowledge in the field of blockchain technology, particularly its applications in multi-organizational ecosystems.
 
