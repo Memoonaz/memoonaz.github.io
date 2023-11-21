@@ -298,7 +298,3 @@ AMDIP is the representative body of business schools in Pakistan and is constitu
 11. Participated in **South Asian International Conference** (SAICON)
 12. Participated in **1**** st **** International Conference on Business and Management Research**, Mirpur, Azad Kashmir
 13. Participated in Annual **Deans and Directors Conferences** by National Business Education Accreditation Council (NBEAC), **Higher Education Commission of Pakistan** from 2016 to 2021.
-
----------------------------------------------------------------------------------------------------
-
-Page 11 of 11
